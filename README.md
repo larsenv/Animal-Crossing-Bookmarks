@@ -94,6 +94,8 @@ These are some bookmarks to Animal Crossing-related sites.
 
 [Animal Crossing: New Horizons](https://discord.gg/acnh)
 
+[Animal Crossing Pattern Tool(s)](https://discord.gg/9rGkZNk)
+
 [Animal Crossing: Wiimmfi World](https://discord.gg/5BUm73E)
 
 [Animal Crossing Wikia](https://discord.gg/UTUDmTB)

@@ -112,3 +112,5 @@ These are some bookmarks to Animal Crossing-related sites.
 [RiiConnect24](https://discord.gg/b4Y7jfD)
 
 [Soda Pop+: Animal Crossing Discord](https://discord.me/animalcrossing)
+
+[Switch Lan Play](https://discord.gg/K9WFGSH)

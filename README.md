@@ -79,7 +79,7 @@ These are some bookmarks to Animal Crossing-related sites.
 
 ## Discord Servers
 
-[AC:CC Wiimmfi](https://discord.gg/BGmMGpN))
+[AC:CC Wiimmfi](https://discord.gg/BGmMGpN)
 
 [Animal Crossing Discord Friends](https://discord.gg/hbBMCQK)
 

@@ -90,6 +90,8 @@ These are some bookmarks to Animal Crossing-related sites.
 
 [Animal Crossing Island](https://discord.gg/FMYy2K2)
 
+[Animal Crossing Lan Players](https://discord.gg/RMXrdy)
+
 [Animal Crossing Modding](https://discord.gg/HcpymVA)
 
 [Animal Crossing: New Horizons](https://discord.gg/acnh)

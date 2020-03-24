@@ -26,11 +26,15 @@ These are some bookmarks to Animal Crossing-related sites.
 
 [AC-Booster (German)](https://ac-booster.net/)
 
+[AC-Stammtisch (German)](https://www.ac-stammtisch.com/)
+
 [Animal Crossing Community](http://www.animalcrossingcommunity.com/)
 
 [Animal Crossing: New Horizons](https://www.acnewhorizons.de/)
 
 [Animal Crossing Portal](https://www.animalcrossingportal.com/)
+
+[Animal Crossing Village (German)](http://www.ac-village.bplaced.net/)
 
 [Animal Crossing World](https://animalcrossingworld.com/)
 

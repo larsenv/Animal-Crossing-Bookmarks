@@ -16,6 +16,8 @@ These are some bookmarks to Animal Crossing-related sites.
 
 [Animal Crossing Wiki (German)](https://animalcrossingwiki.de/)
 
+[MoriDB](http://moridb.com/)
+
 [Neoseeker](https://animalcrossing.neoseeker.com/)
 
 [Nookipedia](https://nookipedia.com/)
